@@ -1,7 +1,3 @@
 #asdwsdfwecds
 csdcsdcsdcs
 dcsdcsdcsdc
-qdwdwdwdsdsadsdsdsedfsefwesfew
-sdsdf
-asdasd
-#import numpysdasdsdsdsfdsdfsdfsdcscscdscsdcsdcsdcsdcsd
